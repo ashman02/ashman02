@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Real time project management website<br>I'm currently in collaborate with TEN Network<br>
+I'm currently working on Real time project management website<br>I'm currently working as intern at Writo Education<br>
 
 
 ## 🌐 Socials:
