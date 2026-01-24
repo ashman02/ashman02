@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Real time project management website<br>I'm currently working as intern at Writo Education<br>
+I'm a freelancer web designer and developer.
 
 
 ## 🌐 Socials:
